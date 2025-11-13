@@ -1,3 +1,7 @@
+
+<p align="center">
+  <img src="https://moewalls.com/wp-content/uploads/2025/08/plana-x-arona-blue-archive-thumb.jpg" width="400" alt="accessibility text">
+</p>
  ### あまねく奇跡の始発点を、見つけられますように。 
  I'm just getting started,and there are still many things I've yet to experience.
 -> That's why I began.
